@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# ◆If you doubt yourself, then indeed you stand on shaky ground.
+　　 如果你怀疑自己，那么你的立足点确实不稳固了。
+　　 －Ibsen（挪威剧作家易卜生）
